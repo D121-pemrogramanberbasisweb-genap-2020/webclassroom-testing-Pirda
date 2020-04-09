@@ -1,3 +1,3 @@
-Nama : 
+Nama : Pirda
 
-NIM  :
+NIM  : D121181012
